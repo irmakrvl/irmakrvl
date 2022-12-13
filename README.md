@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Irmak RAVLI
 - 🌱 Dokuz Eylül University, Department of Computer Engineering
-- 👀 I’m interested in network and cyber security
-- 📫 How to reach me irmakravli@gmail.com 
+- 👀 I’m interested in network speciality and cyber security speciality.
+- 📫 How to reach me irmakravli@gmail.com and irmakravli@outlook.com
